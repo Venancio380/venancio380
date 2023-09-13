@@ -1,16 +1,20 @@
-### Hi there 👋
+### bem vindo ao meu perfil 
+ 
+matheus venancio 
 
-<!--
-**Venancio380/venancio380** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+sou estudante do 1 ano do novo ensino medio
 
-Here are some ideas to get you started:
+no meu tempo livre gosto de dormir....
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+#todos tem que dormir
+
+
+
+
+
+
+
+
+
+
+
